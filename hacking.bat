@@ -1,0 +1,11 @@
+start hacking
+start hacking
+start hacking
+start hacking
+start hacking
+start hacking
+start hacking
+start hacking
+start hacking
+start hacking
+ping google.com
